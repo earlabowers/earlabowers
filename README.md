@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Current Computer Engineering student @ BYU-Idaho<br>
+📚 Current Computer Engineering student @ BYU-Idaho<br>
 
 
 ## 🌐 Socials:
